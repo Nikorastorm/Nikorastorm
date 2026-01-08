@@ -3,8 +3,6 @@
 
 <img width="400" height="100" alt="image" src="https://github.com/user-attachments/assets/bacc6fb9-8a1e-442c-8b5b-327bd9c48191" />
 
-<img src=<img width="400" height="100" alt="image" src="https://github.com/user-attachments/assets/252f0a2c-4036-47e7-8536-ed601ed6ff2f" />
->
 
 
 <sub>Click on dropdown text to read!</sub>
