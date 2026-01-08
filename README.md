@@ -4,7 +4,7 @@
 
 ![Profile view counter](https://komarev.com/ghpvc/?username=Nikorastorm&color=ff69b4&label=Holy+moly)
 
-Click on text to read!
+<sub>Click on dropdown text to read!</sub>
 
 <Details>
 <summary>About me</summary>
