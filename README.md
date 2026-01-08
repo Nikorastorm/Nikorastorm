@@ -40,7 +40,7 @@ It's not that serious and I won't block you for it, just don't be surprised if I
 <Details>
 <summary>Do Not Interact</summary>
 
- If you're below 16. I am uncomfortable befriending people much younger than me.
+ If you're below 14. I am uncomfortable befriending people much younger than me.
  
 I hang around the Minecraft area sometimes, so I feel the need to add: If you support GNF or Wilbur Soot "WSS", stay away from me - you're weird.
 
