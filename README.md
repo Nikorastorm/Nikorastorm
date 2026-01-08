@@ -1,7 +1,5 @@
 <div align="center">
 
-![ScreenShot](https://github.com/i-saumitra/Voice-controlled-MP3-Player/blob/master/screenshot.jpg)
-
 <Details>
 <summary>About me</summary>
 
