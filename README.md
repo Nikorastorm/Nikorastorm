@@ -30,7 +30,7 @@ Warrior Cats, How To Train Your Dragon, Epic the musical, Arcane, Path of Titans
 
  I may be a bit dry when first talking to someone, I don't mean to sound rude!
 
- I do not accept random friend requests. Do not be upset if I decline if we haven't spoken at least once.
+ I do not accept random friend requests. Don't be upset if I decline if we haven't spoken at least once.
 
  I tend to be tabbed out in-game; if you really want my attention, whisper me.
 
