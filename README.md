@@ -1,6 +1,7 @@
 <div align="center">
 
 Click on text to read!
+
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Nikorastorm)
 
 <Details>
