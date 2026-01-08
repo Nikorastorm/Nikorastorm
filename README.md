@@ -1,6 +1,7 @@
 <div align="center">
 
 Click on text to read!
+![Profile Views](https://komarev.com/ghpvc/?Nikorastorm)
 
 <Details>
 <summary>About me</summary>
