@@ -34,7 +34,7 @@ Warrior Cats, How To Train Your Dragon, Epic the musical, Arcane, Path of Titans
 
  I tend to be tabbed out in-game; if you really want my attention, whisper me.
 
- My statuses are self-explanatory: Online, I'm tabbed in - Away, probably tabbed out - Busy, busy!
+ My statuses are self-explanatory: Online, online ingame - Away, off tab - Busy, busy!
 
  I don't mind people taking inspiration from my skins! I'd prefer if people don't copy them directly, but I truly don't care enough to make a big deal out of it - not that serious to me.
 
