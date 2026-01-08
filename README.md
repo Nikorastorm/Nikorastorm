@@ -1,8 +1,8 @@
+![Profile view counter](https://komarev.com/ghpvc/?username=Nikorastorm&color=ff69b4&label=Holy+moly)
 <div align="center">
 
 <img width="400" height="100" alt="image" src="https://github.com/user-attachments/assets/bacc6fb9-8a1e-442c-8b5b-327bd9c48191" />
 
-![Profile view counter](https://komarev.com/ghpvc/?username=Nikorastorm&color=ff69b4&label=Holy+moly)
 
 <sub>Click on dropdown text to read!</sub>
 
