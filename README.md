@@ -1,7 +1,7 @@
 <div align="center">
 
 <img width="400" height="100" alt="image" src="https://github.com/user-attachments/assets/bacc6fb9-8a1e-442c-8b5b-327bd9c48191" />
-
+![Profile view counter](https://komarev.com/ghpvc/?username=Nikorastorm&color=ff69b4&label=Holy+moly)
 
 Click on text to read!
 
@@ -56,5 +56,5 @@ I don't have many "DNI's" I just thought I should add specific things that are i
 <img width="1360" height="250" alt="image" src="https://github.com/user-attachments/assets/15159fac-c908-4272-9486-644d017bc6e3" />
 
 
-![Profile view counter](https://komarev.com/ghpvc/?username=Nikorastorm&color=ff69b4&label=Holy+moly)
+
 
