@@ -2,8 +2,6 @@
 
 Click on text to read!
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Nikorastorm)
-
 <Details>
 <summary>About me</summary>
 
@@ -51,3 +49,5 @@ If you compare Caitlyn Kiramman to people like H/tler, Charlie Kirk. You're very
 I don't have many "DNI's" I just thought I should add specific things that are important enough to me.
 </details>
 
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Nikorastorm)
