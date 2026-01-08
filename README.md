@@ -54,7 +54,8 @@ I don't have many "DNI's" I just thought I should add specific things that are i
 </details>
 
 
-<img width="1360" height="250" alt="image" src="https://github.com/user-attachments/assets/15159fac-c908-4272-9486-644d017bc6e3" />
+<img width="497" height="91" alt="image" src="https://github.com/user-attachments/assets/cc362ca8-2370-49e7-b538-eb6dd6d179db" />
+
 
 
 
