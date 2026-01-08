@@ -50,4 +50,5 @@ I don't have many "DNI's" I just thought I should add specific things that are i
 </details>
 
 
-![Profile View Counter](https://komarev.com/ghpvc/Nikorastorm&color=pink)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Nikorastorm)
+
