@@ -1,6 +1,6 @@
 <div align="center">
 
-![Image]([[image_url]](https://i.pinimg.com/originals/aa/03/7a/aa037a20cdd2f159f174646fe10293f2.gif))
+![ScreenShot](https://github.com/i-saumitra/Voice-controlled-MP3-Player/blob/master/screenshot.jpg)
 
 <Details>
 <summary>About me</summary>
