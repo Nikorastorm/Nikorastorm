@@ -35,6 +35,8 @@ Warrior Cats, How To Train Your Dragon, Epic the musical, Arcane, Path of Titans
 
  My statuses are self-explanatory: Online, I'm tabbed in - Away, probably tabbed out - Busy, busy!
 
+ I don't mind people taking inspiration from my skins! I'd prefer if people don't copy them directly, but I truly don't care enough to make a big deal out of it - not that serious to me.
+
  A little something I'd like to add; there's lots of popular fandom things I dislike; Epic fandom as an example "Telemarketing, pancake," 2020-like whatever jokes, sadly I find them "cringe" and very unfunny, so I may not want to befriend you even if we share an interest because of that. This goes for any other over-popular fandom jokes (DDLC: "hanging", Warriors: "Waffles", list goes on).
 It's not that serious and I won't block you for it, just don't be surprised if I don't want to befriend you! ^_^
 </details>
