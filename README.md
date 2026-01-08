@@ -47,5 +47,3 @@ If you compare Caitlyn Kiramman to people like H/tler, Charlie Kirk. You're very
 I don't have many "DNI's" I just thought I should add specific things that are important enough to me.
 </details>
 
-
- #### Test
