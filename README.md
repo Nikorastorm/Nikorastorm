@@ -1,6 +1,6 @@
 <div align="center">
 
-![]([image_url]([https://img1.picmix.com/output/stamp/normal/3/8/6/3/1793683_eaa71.gif](https://i.pinimg.com/originals/aa/03/7a/aa037a20cdd2f159f174646fe10293f2.gif)))
+![Image]([[image_url]](https://i.pinimg.com/originals/aa/03/7a/aa037a20cdd2f159f174646fe10293f2.gif))
 
 <Details>
 <summary>About me</summary>
