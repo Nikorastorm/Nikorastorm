@@ -1,4 +1,3 @@
-
 <div align="center">
 **About Me**
  Call me Alex or whatever my character name is!
