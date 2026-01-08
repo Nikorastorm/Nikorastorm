@@ -56,6 +56,8 @@ I hang around the Minecraft area sometimes, so I feel the need to add: If you su
 
 If you compare Caitlyn Kiramman to people like H/tler, Charlie Kirk. You're very strange.
 
+HH/HB/Vivziepop fans - I've had nothing but bad experiences with these fans, that's it.
+
 I don't have many "DNI's" I just thought I should add specific things that are important enough to me.
 </details>
 
