@@ -1,6 +1,6 @@
 <div align="center">
 
-![Alt text]([image_url](https://img1.picmix.com/output/stamp/normal/3/8/6/3/1793683_eaa71.gif))
+![]([image_url](https://img1.picmix.com/output/stamp/normal/3/8/6/3/1793683_eaa71.gif))
 
 <Details>
 <summary>About me</summary>
