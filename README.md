@@ -27,13 +27,15 @@ Warrior Cats, How To Train Your Dragon, Epic the musical, Arcane, Path of Titans
 
  I hide freely and permanently. 
 
- I may be a bit dry and awkward when first talking to someone, I don't mean to sound rude!
+ I may be a bit awkward when first talking to someone, I don't chat with people too often!
 
  I do not accept random friend requests. Don't be upset if I decline if we haven't spoken at least once.
 
  I tend to be tabbed out in-game; if you really want my attention, whisper me. Please don't take silence as me ignoring you, I'm most likely off-tab or just very tired.
 
  My statuses are self-explanatory: Online, online ingame - Away, off tab - Busy, busy!
+
+ I may not befriend you if you're a VERY dry chatter, unfortunately - I try my best to be very expressive through my text and I just get a lil bored talking to people constantly saying "k" lolz
 
  I don't mind people taking inspiration from my skins! I'd prefer if people don't copy them directly, but I truly don't care enough to make a big deal out of it - not that serious to me.
 
