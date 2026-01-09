@@ -31,6 +31,8 @@ Warrior Cats, How To Train Your Dragon, Epic the musical, Arcane, Path of Titans
 
  I do not accept random friend requests. Don't be upset if I decline if we haven't spoken at least once.
 
+  I don't have many boundaries; you can boop, cuddle, sit with me - I don't really care.
+
  I tend to be tabbed out in-game; if you really want my attention, whisper me. Please don't take silence as me ignoring you, I'm most likely off-tab or just very tired.
 
  My statuses are self-explanatory: Online, online ingame - Away, off tab - Busy, busy!
@@ -38,8 +40,6 @@ Warrior Cats, How To Train Your Dragon, Epic the musical, Arcane, Path of Titans
  I may not befriend you if you're a VERY dry chatter, unfortunately - I try my best to be very expressive through my text and I just get a lil bored talking to people constantly saying "k" lolz
 
  I don't mind people taking inspiration from my skins! I'd prefer if people don't copy them directly, but I truly don't care enough to make a big deal out of it - not that serious to me.
-
- I don't have many boundaries; I don't care about things like boops, cuddles, all that. 
 
  Do not use weird sexual humor/teases with me, especially if we just met. Same goes for venting and oversharing.
 </details>
