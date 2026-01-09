@@ -27,7 +27,7 @@ Warrior Cats, How To Train Your Dragon, Epic the musical, Arcane, Path of Titans
 
  I hide freely and permanently. 
 
- I may be a bit dry when first talking to someone, I don't mean to sound rude!
+ I may be a bit dry and awkward when first talking to someone, I don't mean to sound rude!
 
  I do not accept random friend requests. Don't be upset if I decline if we haven't spoken at least once.
 
