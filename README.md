@@ -31,7 +31,7 @@ Warrior Cats, How To Train Your Dragon, Epic the musical, Arcane, Path of Titans
 
  I do not accept random friend requests. Don't be upset if I decline if we haven't spoken at least once.
 
- I tend to be tabbed out in-game; if you really want my attention, whisper me. Please don't take silence as me ignoring you, I'm most likely off-tab or just very tired. I don't mean to be rude at all! <3
+ I tend to be tabbed out in-game; if you really want my attention, whisper me. Please don't take silence as me ignoring you, I'm most likely off-tab or just very tired.
 
  My statuses are self-explanatory: Online, online ingame - Away, off tab - Busy, busy!
 
