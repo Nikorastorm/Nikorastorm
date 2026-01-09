@@ -10,8 +10,7 @@
 <Details>
 <summary>About me</summary>
 
-My names Alex, I'm 19 years old. I'm usually just sitting around doing nothing in-game. I mostly play this game to make skins + listen to the music while offtab, so I may not always be able to read your message - whispering is the best way to get my attention! I don't mind anyone trying to chat with me; I get very, very bored sitting around since I don't often start conversations, so please, feel free!
-</details>
+My names Alex, I'm 19 years old. I'm usually just sitting around doing nothing in-game. I mostly play this game to make skins + listen to the music while offtab, so I may not always be able to read your message - whispering is the best way to get my attention! I don't mind anyone trying to chat with me; I get very, very bored sitting around since I don't often start conversations; if share any interests with me, PLEASE don't be afraid to chat with me!
 
 
 
@@ -32,7 +31,7 @@ Warrior Cats, How To Train Your Dragon, Epic the musical, Arcane, Path of Titans
 
  I do not accept random friend requests. Don't be upset if I decline if we haven't spoken at least once.
 
- I tend to be tabbed out in-game; if you really want my attention, whisper me. Please don't take me not responding as ignoring you! I don't mean to <3
+ I tend to be tabbed out in-game; if you really want my attention, whisper me. Please don't take silence as me ignoring you, I'm most likely off-tab or just very tired. I don't mean to be rude at all! <3
 
  My statuses are self-explanatory: Online, online ingame - Away, off tab - Busy, busy!
 
