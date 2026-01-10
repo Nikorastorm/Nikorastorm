@@ -37,9 +37,9 @@ Warrior Cats, How To Train Your Dragon, Epic the musical, Arcane, Path of Titans
 
  My statuses are self-explanatory: Online, online ingame - Away, AFK - Busy, busy!
 
- I may not befriend you if you're a VERY dry chatter, unfortunately - I try my best to be very expressive through my text and I just get a lil bored talking to people constantly saying "k" lolz
+ I may not befriend you if you're a VERY dry chatter, unfortunately - I try my best to be very expressive through my text and I just get a lil bored talking to people constantly saying "k" 'n shit
 
- I don't mind people taking inspiration from my skins! Please do not copy directly from my skins - I don't make big deals out of it, but I will perma hide you. I put lots of time and care into my skins and it does kinda bum me out to see someone yoinking it lolz
+ I don't mind people taking inspiration from my skins! Please do not copy directly from my skins - I don't make big deals out of it, but I will perma hide you. I put lots of time and care into my skins and it does kinda bum me out to see someone yoinking it.
 
  Do not use weird sexual humor/teases with me, especially if we just met. Same goes for venting and oversharing.
 </details>
