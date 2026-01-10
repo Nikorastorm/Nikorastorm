@@ -57,8 +57,6 @@ If you compare Caitlyn Kiramman to people like H/tler, Charlie Kirk. You're very
 
 HH/HB/Vivziepop fans - I've had nothing but bad experiences with these fans, that's it.
 
-People who fake disorders. I see a LOT of people claim to have DID on PT specifically, and I seriously doubt THAT many people truly are diagnosed. Do your research and see a doctor instead of self-diagnosing. It's not some silly quirky thing like most people act it is.
-
 I don't have many "DNI's" I just thought I should add specific things that are important enough to me.
 </details>
 
