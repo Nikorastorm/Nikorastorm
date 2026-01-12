@@ -36,7 +36,7 @@ Warrior Cats, How To Train Your Dragon, Epic the musical, Arcane, Path of Titans
 
  I tend to be tabbed out in-game; if you really want my attention, whisper me. Please don't take silence as me ignoring you, I'm most likely off-tab or just very tired.
 
- My statuses are self-explanatory: Online, online ingame - Away, AFK - Busy, busy!
+ My statuses are self-explanatory: Online, active - Away, offtab - Busy, AFK!
 
  I may not befriend you if you're a VERY dry chatter, unfortunately - I try my best to be very expressive through my text and I just get a lil bored talking to people constantly saying "k" 'n shit
 
