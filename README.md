@@ -18,7 +18,7 @@ My names Alex, I'm 19 years old. I'm usually just sitting around doing nothing i
 <Details>
 <summary>Interests</summary>
  
-Warrior Cats, How To Train Your Dragon + School of Dragons, Epic the musical, Arcane, Path of Titans, Left 4 Dead, TF2, The Walking Dead, Supernatural, Good Omens, DreamSMP (Lore only), Starkid TGWDLM, Impractical Jokers, Jurassic Park/World, Game of Thrones
+Warrior Cats, How To Train Your Dragon + School of Dragons, Epic the musical, Arcane, Path of Titans, Left 4 Dead, TF2, The Walking Dead, Supernatural, Good Omens, DreamSMP (Lore only), StarKid TGWDLM + Nightmare Time, Impractical Jokers, Jurassic Park/World, Game of Thrones
 </details>
 
 
