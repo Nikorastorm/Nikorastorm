@@ -32,7 +32,7 @@ Dinosaurs, Path of Titans, Warrior Cats, How To Train Your Dragon + School of Dr
 
  I do not accept random friend requests. Don't be upset if I decline if we haven't spoken at least once.
 
-  I don't have many boundaries; you can boop, cuddle, sit with me - I don't really care.
+  I don't have many boundaries; you can boop, cuddle, sit with me - I don't care ^^
 
  I tend to be tabbed out in-game; if you really want my attention, whisper me. Please don't take silence as me ignoring you, I'm most likely off-tab or just very tired.
 
@@ -40,7 +40,7 @@ Dinosaurs, Path of Titans, Warrior Cats, How To Train Your Dragon + School of Dr
 
  I may not befriend you if you're a VERY dry chatter, unfortunately - I try my best to be very expressive through my text and I just get a lil bored talking to people constantly saying "k" 'n shit
 
- I don't mind people taking inspiration from my skins! Please do not copy directly from my skins - I don't make big deals out of it, but I will perma hide you. I put lots of time and care into my skins and it does kinda bum me out to see someone yoinking it. I do have lots of very low-effort skins as well; I don't mind people taking those at all since I don't gaf about them lmao
+ I don't mind people taking inspiration from my skins! Please do not copy directly from my skins - I don't make big deals out of it, but I will perma hide you. I put lots of time and care into my skins and it does kinda bum me out to see someone yoinking it.
 
  Do not use weird sexual humor/teases with me, especially if we just met. Same goes for venting and oversharing.
 </details>
