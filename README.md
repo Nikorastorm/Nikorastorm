@@ -26,13 +26,11 @@ Dinosaurs, Path of Titans, Warrior Cats, How To Train Your Dragon + School of Dr
 <Details>
 <summary>Ponytown</summary>
 
- I hide freely and permanently. 
-
  I may be a bit awkward when first talking to someone, I don't chat with people too often!
 
  I do not accept random friend requests. Don't be upset if I decline if we haven't spoken at least once.
 
-  I don't have many boundaries; you can boop, cuddle, sit with me - I don't care ^^
+  I don't have many boundaries; you can boop, cuddle, sit with me - I don't care ^^ Only thing to add, please don't try roleplaying with me, I'm not interested in that type of stuff.
 
  I tend to be tabbed out in-game; if you really want my attention, whisper me. Please don't take silence as me ignoring you, I'm most likely off-tab or just very tired.
 
