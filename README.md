@@ -11,7 +11,7 @@
 <Details>
 <summary>About me</summary>
 
-My names Niki, I'm 10 years old. I'm usually just sitting around doing nothing in-game. I mostly play this game to make skins + listen to the music while offtab and working, so I may not always be able to read your message - whispering is the best way to get my attention! I don't mind anyone trying to chat with me; I get very, very bored sitting around since I don't often start conversations. If you share any interests with me, PLEASE don't be afraid to chat with me! Though I'm not too social myself, I love making new friends. ^_^
+My names Niki, I'm 20 years old. I'm usually just sitting around doing nothing in-game. I mostly play this game to make skins + listen to the music while offtab and working, so I may not always be able to read your message - whispering is the best way to get my attention! I don't mind anyone trying to chat with me; I get very, very bored sitting around since I don't often start conversations. If you share any interests with me, PLEASE don't be afraid to chat with me! Though I'm not too social myself, I love making new friends. ^_^
 </details>
 
 
