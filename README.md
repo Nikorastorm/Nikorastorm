@@ -67,7 +67,7 @@ I don't have many "DNI's" I just thought I should add specific things that are i
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=w0mcbvyhr9637dbvc5lftls1h&cover_image=true&theme=default&show_offline=false&background_color=00190a&interchange=false&profanity=false&bar_color=dfffb8">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=w0mcbvyhr9637dbvc5lftls1h&cover_image=true&theme=default&show_offline=false&background_color=1e0619&interchange=false&profanity=false&hide_remaster=false&bar_color=febed7">
   </a>
 </p>
 
