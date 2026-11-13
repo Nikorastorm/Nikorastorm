@@ -60,7 +60,6 @@ I don't have many "DNI's" I just thought I should add specific things that are i
 </details>
 
 
-![Alt text]([relative/path/to/image.png](https://tenor.com/view/гифтоматмб-divider-dividers-divider-pink-divider-white-gif-59945303769208170))
 
 
 
