@@ -58,7 +58,7 @@ I don't have many "DNI's" I just thought I should add specific things that are i
 </details>
 
 
-
+<img width="400" height="100" alt="image" src="https://media.tenor.com/d7OmWGqjbwsAAAAi/sparkles-glitter.gif" />
 
 
 <p align="center">
