@@ -2,7 +2,7 @@
 
 <div align="center">
 
-<img width="400" height="100" alt="image" src="https://github.com/user-attachments/assets/bacc6fb9-8a1e-442c-8b5b-327bd9c48191" />
+
 
 
 
@@ -58,7 +58,6 @@ I don't have many "DNI's" I just thought I should add specific things that are i
 </details>
 
 
-<img width="400" height="100" alt="image" src="https://media.tenor.com/d7OmWGqjbwsAAAAi/sparkles-glitter.gif" />
 
 
 <p align="center">
