@@ -48,9 +48,7 @@ Dinosaurs, Path of Titans, Warrior Cats, How To Train Your Dragon + School of Dr
 <Details>
 <summary>Do Not Interact</summary>
 
- If you're below 16. I am uncomfortable befriending people much younger than me.
- 
-I hang around the Minecraft area sometimes, so I feel the need to add: If you support GNF or Wilbur Soot "WSS", stay away from me 
+ If you're below 16. I am uncomfortable befriending people much younger than me. 
 
 If you compare Caitlyn Kiramman to people like H/tler, Charlie Kirk, etc - very weird
 
