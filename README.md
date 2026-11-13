@@ -60,7 +60,7 @@ I don't have many "DNI's" I just thought I should add specific things that are i
 </details>
 
 
-<img width="497" height="91" alt="image" src="https://github.com/user-attachments/assets/cc362ca8-2370-49e7-b538-eb6dd6d179db" />
+<img width="497" height="91" alt="image" src="[https://github.com/user-attachments/assets/cc362ca8-2370-49e7-b538-eb6dd6d179db](https://github.com/user-attachments/assets/cc362ca8-2370-49e7-b538-eb6dd6d179db)" />
 
 
 
